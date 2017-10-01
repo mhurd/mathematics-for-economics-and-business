@@ -1,0 +1,1 @@
+Mathematics for Economics and Business - Ian Jaques
